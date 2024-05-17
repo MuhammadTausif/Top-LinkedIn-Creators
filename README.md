@@ -14,3 +14,8 @@ https://www.linkedin.com/in/joellalgee/
 https://www.linkedin.com/in/jamie-gardiner/
 
 https://www.linkedin.com/in/zayddeennn/
+
+### Jennifer L.
+**Senior Sales Engineer - Industrial Monitor Direct**
+
+https://www.linkedin.com/in/jennifer-l-8777836a/
