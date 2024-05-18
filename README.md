@@ -1,6 +1,18 @@
 # Top-LinkedIn-Creators
 This Repo is all about LinkedIn Top Creator Directory
 
+## AI and Data Science
+
+### Bojan Tunguz, Ph.D.
+
+**Machine Learning Modeler | Physicist | Quadruple Kaggle Grandmaster**
+
+https://www.linkedin.com/in/tunguz/
+
+
+## Social Media
+
+https://www.linkedin.com/in/tunguz/
 
 https://www.linkedin.com/in/maya-raichoora/
 
