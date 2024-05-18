@@ -19,6 +19,11 @@ https://www.linkedin.com/in/panela/
 
 ## Social Media
 
+### Ajit Kumar 
+**180K | Help to Grow LinkedIn Account • DM me | Stay Ahead with the Latest AI 👨‍💻 & Tech Innovations | Help to grow brands | Content Creator | 40K+ Telegram | 20K+ Twitter | Open for Collaborations**
+
+https://www.linkedin.com/in/ajitcodes/
+
 https://www.linkedin.com/in/maya-raichoora/
 
 https://www.linkedin.com/in/ubaiddesigns/
