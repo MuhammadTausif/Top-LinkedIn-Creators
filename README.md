@@ -9,7 +9,7 @@ This Repo is all about LinkedIn Top Creator Directory
 
 https://www.linkedin.com/in/tunguz/
 
-## 📊 Alastair Muir, PhD, BSc, BEd, MBB
+### 📊 Alastair Muir, PhD, BSc, BEd, MBB
 *4,182 followers*
 
 **Data Science Consultant | Risk Analysis and Optimization**
@@ -23,6 +23,12 @@ Top Data Science Voice
 
 https://www.linkedin.com/in/panela/
 
+### David Knickerbocker
+*34,525 followers*
+
+Chief Scientist, Co-founder, Author
+
+https://www.linkedin.com/in/dkjapan/
 
 ## Social Media
 
