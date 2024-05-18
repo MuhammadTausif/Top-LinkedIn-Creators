@@ -3,8 +3,15 @@ This Repo is all about LinkedIn Top Creator Directory
 
 ## AI and Data Science
 
-### Bojan Tunguz, Ph.D.
+| Name    | Followers | Date Analyzed |
+| -------- | ------- | -------- |
+| Bojan Tunguz  | 141,035 | 18 May 2024 |
+| Alastair Muir  | 4,182 | 18 May 2024 |
+| David Knickerbocker | 34,525| 18 May 2024 |
 
+
+### Bojan Tunguz, Ph.D.
+*141,035 followers*
 **Machine Learning Modeler | Physicist | Quadruple Kaggle Grandmaster**
 
 https://www.linkedin.com/in/tunguz/
