@@ -9,10 +9,15 @@ This Repo is all about LinkedIn Top Creator Directory
 
 https://www.linkedin.com/in/tunguz/
 
+### Matt Harrison 
+**Python, Data, AI Corporate Trainer, Author, Speaker, Consultant, Advisor, Sponsorship**
+
+Top Data Science Voice
+
+https://www.linkedin.com/in/panela/
+
 
 ## Social Media
-
-https://www.linkedin.com/in/tunguz/
 
 https://www.linkedin.com/in/maya-raichoora/
 
