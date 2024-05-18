@@ -9,6 +9,13 @@ This Repo is all about LinkedIn Top Creator Directory
 
 https://www.linkedin.com/in/tunguz/
 
+## 📊 Alastair Muir, PhD, BSc, BEd, MBB
+*4,182 followers*
+
+**Data Science Consultant | Risk Analysis and Optimization**
+
+https://www.linkedin.com/in/alastairkerrmuir/
+
 ### Matt Harrison 
 **Python, Data, AI Corporate Trainer, Author, Speaker, Consultant, Advisor, Sponsorship**
 
