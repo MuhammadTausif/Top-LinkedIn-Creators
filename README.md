@@ -37,6 +37,16 @@ Chief Scientist, Co-founder, Author
 
 https://www.linkedin.com/in/dkjapan/
 
+
+## Freelancing
+
+### Farhan Khan 
+*3,287 followers*
+
+**Professional Top-Rated Upwork Freelancer | 700+ Projects Delivered | Software Engineer | ATS Resume & CV Writer | Android & Web Developer | UI/UX Designer | Wix Expert**
+
+https://www.linkedin.com/in/farhan-khan-upwork/
+
 ## Social Media
 
 ### Ajit Kumar 
