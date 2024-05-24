@@ -49,6 +49,15 @@ https://www.linkedin.com/in/farhan-khan-upwork/
 
 ## Social Media
 
+
+### Saman Khan
+
+*13,569 followers*
+
+**Using your personal linkedin to drive business outcomes I AI Automation I Founder @She Built This**
+
+https://www.linkedin.com/in/samanahmedva/
+
 ### Ajit Kumar 
 **180K | Help to Grow LinkedIn Account • DM me | Stay Ahead with the Latest AI 👨‍💻 & Tech Innovations | Help to grow brands | Content Creator | 40K+ Telegram | 20K+ Twitter | Open for Collaborations**
 
