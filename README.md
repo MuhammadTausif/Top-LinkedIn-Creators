@@ -37,6 +37,12 @@ Chief Scientist, Co-founder, Author
 
 https://www.linkedin.com/in/dkjapan/
 
+### Rocky Bhatia
+*143,899 followers*
+
+**Architecting the Future @ Adobe | 143k + LinkedIn | Top 1% LinkedIn | | Global Speaker | 150K Instagram | YouTube**
+
+https://www.linkedin.com/in/rocky-bhatia-a4801010/
 
 ## Freelancing
 
