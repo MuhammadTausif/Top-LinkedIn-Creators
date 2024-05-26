@@ -53,7 +53,7 @@ https://www.linkedin.com/in/rocky-bhatia-a4801010/
 
 https://www.linkedin.com/in/farhan-khan-upwork/
 
-## Social Media
+## Social Media / Personal Branding
 
 
 ### Saman Khan
@@ -63,6 +63,14 @@ https://www.linkedin.com/in/farhan-khan-upwork/
 **Using your personal linkedin to drive business outcomes I AI Automation I Founder @She Built This**
 
 https://www.linkedin.com/in/samanahmedva/
+
+### Luka Srbic
+
+**CEO & FOUNDER | Unleashing growth potential with digital marketing and leadership**
+
+*2,673 followers*
+
+https://www.linkedin.com/in/lukasrbic/
 
 ### Ajit Kumar 
 **180K | Help to Grow LinkedIn Account • DM me | Stay Ahead with the Latest AI 👨‍💻 & Tech Innovations | Help to grow brands | Content Creator | 40K+ Telegram | 20K+ Twitter | Open for Collaborations**
