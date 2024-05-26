@@ -65,6 +65,14 @@ https://www.linkedin.com/in/kat-norton-7187aa58/
 
 ## Social Media / Personal Branding
 
+### Stefanie Couch 
+
+**🚀 Accelerate your biz with AI & BRAND | 🦄 + 🤖 | Keynote Speaker 🎤 | Helping Professionals and Entrepreneurs Scale Their Businesses and Personal Brands With Systems That Make Them Money!**
+
+*24,623 followers*
+
+https://www.linkedin.com/in/stefaniecouch/
+
 
 ### Saman Khan
 
