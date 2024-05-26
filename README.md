@@ -72,6 +72,14 @@ https://www.linkedin.com/in/samanahmedva/
 
 https://www.linkedin.com/in/lukasrbic/
 
+### Marko Bucić 
+
+**Sales expert on a mission to optimize your sales journey | Author of many online courses | Creating great business content through copywriting and videos | Helping you achieve more with training and mentoring**
+
+*4,114 followers*
+
+https://www.linkedin.com/in/markobucic/
+
 ### Ajit Kumar 
 **180K | Help to Grow LinkedIn Account • DM me | Stay Ahead with the Latest AI 👨‍💻 & Tech Innovations | Help to grow brands | Content Creator | 40K+ Telegram | 20K+ Twitter | Open for Collaborations**
 
