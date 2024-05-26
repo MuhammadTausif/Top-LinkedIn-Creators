@@ -53,6 +53,16 @@ https://www.linkedin.com/in/rocky-bhatia-a4801010/
 
 https://www.linkedin.com/in/farhan-khan-upwork/
 
+### Tech
+
+### Kat Norton
+
+**Microsoft MVP | Founder of Miss Excel | Follow for Excel Tips!**
+
+*77,167 followers*
+
+https://www.linkedin.com/in/kat-norton-7187aa58/
+
 ## Social Media / Personal Branding
 
 
