@@ -65,6 +65,12 @@ https://www.linkedin.com/in/kat-norton-7187aa58/
 
 ## Social Media / Personal Branding
 
+| Name    | Followers | Date Analyzed |
+| -------- | ------- | -------- |
+| Stefanie Couch  | 24,623 | 28 May 2024 |
+| Josh S. | 62,761 | 28 May 2024 |
+
+
 ### Stefanie Couch 
 
 **🚀 Accelerate your biz with AI & BRAND | 🦄 + 🤖 | Keynote Speaker 🎤 | Helping Professionals and Entrepreneurs Scale Their Businesses and Personal Brands With Systems That Make Them Money!**
