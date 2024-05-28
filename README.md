@@ -73,6 +73,14 @@ https://www.linkedin.com/in/kat-norton-7187aa58/
 
 https://www.linkedin.com/in/stefaniecouch/
 
+### Josh S. 
+
+**Personal Brand Manager for Chris Donnelly. Showing You How to Grow your Following and Build your Personal Brand 💪**
+
+*62,761 followers*
+
+https://www.linkedin.com/in/joshejsanders/
+
 
 ### Saman Khan
 
