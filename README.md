@@ -69,6 +69,7 @@ https://www.linkedin.com/in/kat-norton-7187aa58/
 | -------- | ------- | -------- |
 | Stefanie Couch  | 24,623 | 28 May 2024 |
 | Josh S. | 62,761 | 28 May 2024 |
+| Tasleem Ahmad Fateh | 87,367 | 29 May 2024|
 
 
 ### Stefanie Couch 
@@ -78,6 +79,15 @@ https://www.linkedin.com/in/kat-norton-7187aa58/
 *24,623 followers*
 
 https://www.linkedin.com/in/stefaniecouch/
+
+
+### Tasleem Ahmad Fateh  
+
+**I take YOU from 0 to $ on LinkedIn. Founder at LinkedIn Creators Club. Your favourite creators learned here, will you?**
+
+*87,367 followers*
+
+https://www.linkedin.com/in/tasleemahmadfateh/
 
 ### Josh S. 
 
