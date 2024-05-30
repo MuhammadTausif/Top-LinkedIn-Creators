@@ -89,6 +89,14 @@ https://www.linkedin.com/in/stefaniecouch/
 
 https://www.linkedin.com/in/tasleemahmadfateh/
 
+### Hrabren (Harry) Bankov
+
+**No-BS Social Media Tips For Personal Brands 📢| 550K Followers Across Instagram, LinkedIn, Threads | Follow & Dominate Social Media🦁**
+
+*33,446 followers*
+
+https://www.linkedin.com/in/marketingharry/
+
 ### Josh S. 
 
 **Personal Brand Manager for Chris Donnelly. Showing You How to Grow your Following and Build your Personal Brand 💪**
