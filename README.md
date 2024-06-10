@@ -80,6 +80,7 @@ https://www.linkedin.com/in/kat-norton-7187aa58/
 | Josh S. | 62,761 | 28 May 2024 |
 | Tasleem Ahmad Fateh | 87,367 | 29 May 2024|
 |Hrabren (Harry) Bankov | 33,446 | 31 May 2024 |
+| Charles Miller | 119,487 | 10 Jun 2024 |
 
 
 ### Stefanie Couch 
@@ -162,3 +163,11 @@ https://www.linkedin.com/in/zayddeennn/
 **Senior Sales Engineer - Industrial Monitor Direct**
 
 https://www.linkedin.com/in/jennifer-l-8777836a/
+
+### Charles Miller 
+
+**Want to grow on LinkedIn? Get my free course ↓ Once you subscribe to my newsletter, I'll send you a 1-hour video, PDF summary, and 50 post templates. Instantly.**
+
+*119,487 followers*
+
+https://www.linkedin.com/in/charlesmiller-pbb/
