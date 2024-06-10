@@ -1,13 +1,14 @@
 # Top-LinkedIn-Creators
 This Repo is all about LinkedIn Top Creator Directory
 
-## AI and Data Science
+## AI/ML and Data Science
 
 | Name    | Followers | Date Analyzed |
 | -------- | ------- | -------- |
 | Bojan Tunguz  | 141,035 | 18 May 2024 |
 | Alastair Muir  | 4,182 | 18 May 2024 |
 | David Knickerbocker | 34,525| 18 May 2024 |
+| Carly (🎰) Taylor, M.Sc. | 141,298 | 10 Jun 2024 |
 
 
 ### Bojan Tunguz, Ph.D.
@@ -29,6 +30,14 @@ https://www.linkedin.com/in/alastairkerrmuir/
 Top Data Science Voice
 
 https://www.linkedin.com/in/panela/
+
+### Carly (🎰) Taylor, M.Sc. 
+
+**Machine Learning @ Call of Duty | Rebel Data Scientist | Click follow to join a community of data, gaming, and tech professionals 🎮**
+
+*141,298 followers*
+
+https://www.linkedin.com/in/carly-taylor-data/
 
 ### David Knickerbocker
 *34,525 followers*
