@@ -155,7 +155,6 @@ https://www.linkedin.com/in/alicjasmin/
 
 https://www.linkedin.com/in/joellalgee/
 
-
 https://www.linkedin.com/in/jamie-gardiner/
 
 https://www.linkedin.com/in/zayddeennn/
